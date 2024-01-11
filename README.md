@@ -2,8 +2,8 @@
 - 👀 I’m interested in ... cyber security and computer language 
 - 🌱 I’m currently learning ... C++ at the basic.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me ... through my social link.
+- 😄 Pronouns: ... i am not they or them😒. Pure him😎.
 - ⚡ Fun fact: ... i hate myself🥲
 
 <!---
